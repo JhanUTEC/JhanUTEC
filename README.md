@@ -9,7 +9,9 @@
 -🚀 One day I will fulfill my dream of creating a virtual reality environment so that all people from different locations can connect to do an endless number of unimaginable things.*
 
 -💌 Contact me at charles10dejuniogmail.com
-![this is image]https://trendywebz.com/wp-content/uploads/2020/05/WhatsApp-Web.jpg.webp
+
+![alt text](https://es.dreamstime.com/cartel-de-bienvenida-con-la-mano-dibujada-logo-estacional-tarjeta-saludo-m%C3%A1s-tarde-para-decoraci%C3%B3n-vector-eps-image173463083)
+
 
 
 
