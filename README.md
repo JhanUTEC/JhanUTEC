@@ -1,3 +1,6 @@
+**MI PERFIL**
+
+
 🌱 I’m currently learning everything 🤣
 💡 I love the new technologies that emerge every day
 😍 My hobbies are Watch anime🙄, series and movie🎥, play gam🎮, play instruments🎺 and program 👨‍💻
