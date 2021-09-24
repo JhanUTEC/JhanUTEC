@@ -1,16 +1,18 @@
-### Hi there 👋
+🌱 I’m currently learning everything 🤣
+💡 I love the new technologies that emerge every day
+😍 My hobbies are Watch anime🙄, series and movie🎥, play gam🎮, play instruments🎺 and program 👨‍💻
+🚀 One day I will fulfill my dream of creating a virtual reality environment so that all people from different locations can connect to do an endless number of unimaginable things.
+💌 Contact me at charles10dejuniogmail.com
 
-<!--
-**JhanUTEC/JhanUTEC** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+
+
+
+
+
+
+
