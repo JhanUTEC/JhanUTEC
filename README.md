@@ -9,6 +9,7 @@
 -🚀 One day I will fulfill my dream of creating a virtual reality environment so that all people from different locations can connect to do an endless number of unimaginable things.*
 
 -💌 Contact me at charles10dejuniogmail.com
+![this is image]https://trendywebz.com/wp-content/uploads/2020/05/WhatsApp-Web.jpg.webp
 
 
 
